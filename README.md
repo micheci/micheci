@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **Michecimartinez@gmail.com**
 
-- 📄 Know about my experiences http://bit.ly/MicheciResume
+- 📄 Know about my experiences [http://bit.ly/MicheciResume](https://bit.ly/ResumeMicheci)
 
 - ⚡ Fun fact **I love playing soccer**
 

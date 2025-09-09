@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **Michecimartinez@gmail.com**
 
-- 📄 Know about my experiences: [View my Resume]([https://drive.google.com/file/d/1vc694l-ooouIp3TSBuP4Q7lNvfpOw4qD/view?usp=sharing](https://drive.google.com/file/d/1WPxm1jRnQPBbt4wCAimu5Oj_uyNA9aPr/view?usp=sharing))
+📄 Know about my experiences: [View my Resume](https://drive.google.com/file/d/1WPxm1jRnQPBbt4wCAimu5Oj_uyNA9aPr/view?usp=sharing)
+
 
 - ⚡ Fun fact **I love playing soccer**
 
